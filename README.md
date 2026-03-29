@@ -1,6 +1,23 @@
-haii
+Cold hearted girl
+
+Don't hurt me like this anymore
+
+I'm waiting by outside your door
+
+Saying, "Baby, can we talk?"
+
+
+Stupid boy, you keep on begging but I won't let you in
+
+You keep on crying but you know what you did
+
+I'll never let you back innnn
 
 ![17712051614677424076057106969163](https://github.com/user-attachments/assets/5241dd49-cef4-4647-bc07-f32f171a5732)
+
+
+haii
+
 
 interests: anime, ch, heated rilvary🐦‍⬛
 
