@@ -5,9 +5,8 @@ Don't hurt me like this anymore
 I'm waiting by outside your door
 
 Saying, "Baby, can we talk?"
-
-
-
+-
+-
 
 Stupid boy, you keep on begging but I won't let you in
 
