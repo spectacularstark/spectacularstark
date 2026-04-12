@@ -42,4 +42,4 @@ DONT BE A BUM AND COPY MY OCS/COSPLAYS❌ inspo is okay but ask first✅
 
 freee c*h anytime unless dni in name🐦‍⬛
 
-𝐝𝐢𝐬𝐜𝐨𝐫𝐝: 𝐥𝐮𝐦𝐢𝐧𝐨𝐮𝐬𝐦𝐚𝐧𝐠𝐨𝟖𝟏
+𝐝𝐢𝐬𝐜𝐨𝐫𝐝: 𝐫𝐚𝐝𝐢𝐚𝐧𝐭𝐫𝐢𝐧𝐝𝐨𝐮
