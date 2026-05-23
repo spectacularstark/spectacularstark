@@ -8,7 +8,8 @@ haii
 
 
 interests: anime, ch, heated rilvary🐦‍⬛
-
+DONT BE A BUM AND COPY MY OCS/COSPLAYS❌ inspo is okay but ask first✅
+-
 here are my two ponysonas
 
 ![Image](https://github.com/user-attachments/assets/0f1f7d9e-9311-4def-a555-5e780510a555)
@@ -19,9 +20,6 @@ mango 🥭♂️
 
 crèmé 🐰♀️
 
-DONT BE A BUM AND COPY MY OCS/COSPLAYS❌ inspo is okay but ask first✅
--
-
- c*h anytime pls🐦‍⬛
+c*h anytime pls🐦‍⬛
 
 𝐝𝐢𝐬𝐜𝐨𝐫𝐝: 𝐫𝐚𝐝𝐢𝐚𝐧𝐭𝐫𝐢𝐧𝐝𝐨𝐮
