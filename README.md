@@ -1,25 +1,7 @@
-Cold hearted girl
--
 
-Don't hurt me like this anymore
--
 
-I'm waiting by outside your door
--
+<img width="540" height="390" alt="17795653396903681278463146764711" src="https://github.com/user-attachments/assets/6643ad8b-8f92-4d81-b67b-63345752de26" />
 
-Saying, "Baby, can we talk?"
--
-
-Stupid boy, you keep on begging but I won't let you in
--
-
-You keep on crying but you know what you did
--
-
-I'll never let you back innnn
--
-
-![17712051614677424076057106969163](https://github.com/user-attachments/assets/5241dd49-cef4-4647-bc07-f32f171a5732)
 
 
 haii
@@ -27,7 +9,7 @@ haii
 
 interests: anime, ch, heated rilvary🐦‍⬛
 
-my two ponysonas
+here are my two ponysonas
 
 ![Image](https://github.com/user-attachments/assets/0f1f7d9e-9311-4def-a555-5e780510a555)
 
@@ -40,6 +22,6 @@ crèmé 🐰♀️
 DONT BE A BUM AND COPY MY OCS/COSPLAYS❌ inspo is okay but ask first✅
 -
 
-freee c*h anytime unless dni in name🐦‍⬛
+ c*h anytime pls🐦‍⬛
 
 𝐝𝐢𝐬𝐜𝐨𝐫𝐝: 𝐫𝐚𝐝𝐢𝐚𝐧𝐭𝐫𝐢𝐧𝐝𝐨𝐮
