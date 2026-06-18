@@ -11,7 +11,7 @@ interests: anime, ch, heated rilvary🐦‍⬛
 
 DONT BE A BUM AND COPY MY OCS/COSPLAYS❌ inspo is okay but ask first✅
 -
-here are my two ponysonas
+here are my two ponysonas if u guys care❤️‍🩹
 
 ![Image](https://github.com/user-attachments/assets/0f1f7d9e-9311-4def-a555-5e780510a555)
 
