@@ -4,7 +4,8 @@
 
 
 
-haii
+haii you can call me lynn, zoltraak, or madina ‼️‼️‼️‼️‼️ 
+i prefer lynn or zoltraak though‼️‼️
 
 
 interests: anime, ch, heated rilvary🐦‍⬛ 
