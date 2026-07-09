@@ -17,22 +17,6 @@ c*h anytime plsssssss
 
 
 
-. 
-    ∧,,∧   ♡
-　 (,,・∀・) 
-███████ ═╮ 
-███████ ▏ ∥ 
-███████ ═╯ 
-◥█████◤ 
-
-
-
-
-
-
-
-
-
 
 DONT BE A BUM AND COPY MY OCS/COSPLAYS❌ inspo is okay but ask first✅
 -
