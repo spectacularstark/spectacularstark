@@ -4,14 +4,42 @@
 
 
 
-haii you can call me lynn, zoltraak, or madina ‼️‼️‼️‼️‼️ 
-i prefer lynn or zoltraak though‼️‼️
-
+haii you can call me lynn or zoltraak ‼️‼️
 
 interests: anime, ch, heated rilvary🐦‍⬛ 
 
+c*h anytime plsssssss
+
+𝐝𝐢𝐬𝐜𝐨𝐫𝐝: 𝐬𝐩𝐞𝐜𝐭𝐚𝐜𝐮𝐥𝐚𝐫𝐬𝐭𝐚𝐫𝐤
+
+
+
+
+
+
+. 
+    ∧,,∧   ♡
+　 (,,・∀・) 
+███████ ═╮ 
+███████ ▏ ∥ 
+███████ ═╯ 
+◥█████◤ 
+
+
+
+
+
+
+
+
+
+
 DONT BE A BUM AND COPY MY OCS/COSPLAYS❌ inspo is okay but ask first✅
 -
+
+
+
+
 here are my two ponysonas if u guys care❤️‍🩹
 
 ![Image](https://github.com/user-attachments/assets/0f1f7d9e-9311-4def-a555-5e780510a555)
@@ -22,6 +50,3 @@ mango 🥭♂️
 
 crèmé 🐰♀️
 
-c*h anytime pls🐦‍⬛
-
-𝐝𝐢𝐬𝐜𝐨𝐫𝐝: 𝐬𝐩𝐞𝐜𝐭𝐚𝐜𝐮𝐥𝐚𝐫𝐬𝐭𝐚𝐫𝐤
